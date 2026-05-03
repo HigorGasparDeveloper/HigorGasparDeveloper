@@ -51,7 +51,7 @@ Atualmente, atuo como Analista de Sistemas com forte foco em Visão Computaciona
 
 ###  Além do Código
 
-Quando não estou estruturando arquiteturas em nuvem ou criando fluxos complexos no n8n, gosto de relaxar jogando partidas de PUBG, explorando o Minecraft ou competindo no COD Mobile. 
+Quando não estou estruturando arquiteturas em nuvem ou criando fluxos complexos no n8n, gosto de relaxar jogando jogos multiplayer com meus amigos, brincando com meu cachorro e conhecendo coisas novas. 
 
 ---
 
